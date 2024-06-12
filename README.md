@@ -3,8 +3,8 @@
 I produce a lot of Asian (mainly Chinese) looking girls by AI with very high quality for selling, if you need, contact me.
 
 Here are some previews of my generated AI girls, you can check more here inside the folders. Currently I have more than 30,000 images with more than 200 different persons.
-![孟心婧](https://github.com/westNeighbor/JuneGirls/blob/main/%E5%AD%9F%E5%BF%83%E5%A9%A7/IMG_00371.jpg | width=320)
-![巩姝妍](https://github.com/westNeighbor/JuneGirls/blob/main/%E5%B7%A9%E5%A7%9D%E5%A6%8D/IMG_00025.jpg | width=320)
+![孟心婧](https://github.com/westNeighbor/JuneGirls/blob/main/%E5%AD%9F%E5%BF%83%E5%A9%A7/IMG_00371.jpg|width=320)
+![巩姝妍](https://github.com/westNeighbor/JuneGirls/blob/main/%E5%B7%A9%E5%A7%9D%E5%A6%8D/IMG_00025.jpg=512x768)
 ![丁卓瑶](https://github.com/westNeighbor/JuneGirls/blob/main/%E4%B8%81%E5%8D%93%E7%91%B6/IMG_00995.jpg | width=320)
 ![余姻婷](https://github.com/westNeighbor/JuneGirls/blob/main/%E4%BD%99%E5%A7%BB%E5%A9%B7/IMG_00567.jpg | width=320)
 ![刘贤婷](https://github.com/westNeighbor/JuneGirls/blob/main/%E5%88%98%E8%B4%A4%E5%A9%B7/IMG_00086.jpg | width=320)
