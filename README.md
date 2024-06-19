@@ -21,3 +21,4 @@ Here are some previews of my generated AI girls, you can check more here inside 
 ![金贝瑶](https://github.com/westNeighbor/JuneGirls/blob/main/%E9%87%91%E8%B4%9D%E7%91%B6/IMG_01129.jpg)
 ![陈怡锘](https://github.com/westNeighbor/JuneGirls/blob/main/%E9%99%88%E6%80%A1%E9%94%98/IMG_00265.jpg)
 ![陈琳玓](https://github.com/westNeighbor/JuneGirls/blob/main/%E9%99%88%E7%90%B3%E7%8E%93/IMG_00090.jpg)
+![崔爱雪](https://github.com/westNeighbor/JuneGirls/blob/main/%E5%B4%94%E7%88%B1%E9%9B%AA/IMG_00148_2024_06_16.jpg)
