@@ -1,6 +1,6 @@
 # JuneGirls
 
-I produced a lot of Asian (mainly Chinese) looking girls by AI with very high quality, mainly to test models and loras with interests.
+I produced a lot of Asian (mainly Chinese) looking girls by AI with very high quality. At beginning, I just want to use some for my videos, but later I get interested in testing free models and loras.
 
 Here are some previews of my generated AI girls, you can check more here inside the folders. Currently I have more than 30,000 images with more than 200 different persons.
 ![孟心婧](https://github.com/westNeighbor/JuneGirls/blob/main/%E5%AD%9F%E5%BF%83%E5%A9%A7/IMG_00371.jpg)
